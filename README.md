@@ -1,0 +1,6 @@
+# CleaningCapstone
+
+**Team:**
+
+## Project Abstract
+
